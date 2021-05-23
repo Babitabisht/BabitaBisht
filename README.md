@@ -9,7 +9,7 @@
 - 🌱 I’m currently learning everything coming on my way
 - 👯 I’m looking to collaborate on amazing ideas 
 - 💬 Ask me about anything, I am happy to help
-- 📫 How to reach me: linkedIn is the best way or babitabisht2018@gmail.com
+- 📫 How to reach me:  obviously! through (linkedIn)[https://www.linkedin.com/in/babitabisht6]
 
 
 
